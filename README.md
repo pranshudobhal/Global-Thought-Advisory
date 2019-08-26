@@ -1,0 +1,2 @@
+# Global Thought Advisory
+ 
